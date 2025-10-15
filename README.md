@@ -1,4 +1,4 @@
-# 👋 Olá! Eu sou **Uelton Santos da Silva Nos é foda!!!**
+# 👋 Olá! Eu sou **Uelton Santos da Silva Nos é foda  🚀🚀**
 
 ## 🚀 Sobre mim
 
