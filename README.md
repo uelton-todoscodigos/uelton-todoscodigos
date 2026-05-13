@@ -41,8 +41,8 @@ Atualmente, busco desenvolver habilidades mais profundas em:
 ## 📫 Contato
 
 - 💻 GitHub: [uelton-todoscodigos](https://github.com/uelton-todoscodigos)
-- 📧 Email: *(adicione seu email aqui)*
-- 🌐 LinkedIn: *(adicione seu LinkedIn aqui)*
+- 📧 Email: *(uelton-82@htmail.com)*
+- 🌐 LinkedIn: *(https://www.linkedin.com/company/login/?originalSubdomain=br))*
 
 ---
 
